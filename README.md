@@ -1,1 +1,0 @@
-https://guverprog.github.io/rsschool-cv/cv
